@@ -1,1 +1,0 @@
-# shoque.github.io
